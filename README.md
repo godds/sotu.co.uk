@@ -1,4 +1,17 @@
-sotu.co.uk
-==========
+### Aereogramme Discography & Lyrics
 
-Content from the old sotu.co.uk site
+* [Translations](https://github.com/godds/sotu.co.uk/blob/master/translations) (1999)
+* [Hatred](https://github.com/godds/sotu.co.uk/blob/master/hatred) (1999)
+* [FukdID - Glam Cripple EP](https://github.com/godds/sotu.co.uk/blob/master/glam_cripple) (2000)
+* [White Paw EP](https://github.com/godds/sotu.co.uk/blob/master/white_paw) (2001)
+* [A Story In White](https://github.com/godds/sotu.co.uk/blob/master/a_story_in_white) (2001)
+* [Sleep & Release](https://github.com/godds/sotu.co.uk/blob/master/sleep_&_release) (2003)
+* [Acoustic Tour CDR 2003](https://github.com/godds/sotu.co.uk/blob/master/acoustic_tour_cdr_2003) (2003)
+* [Live CD, Belgium + Holland 2003](https://github.com/godds/sotu.co.uk/blob/master/live_cd_belgium+holland_2003) (2003)
+* [Livers & Lungs](https://github.com/godds/sotu.co.uk/blob/master/livers_&_lungs) (2003)
+* [Acoustic CDR 2](https://github.com/godds/sotu.co.uk/blob/master/acoustic_cdr_2) (2003)
+* [Acoustic CDR 3](https://github.com/godds/sotu.co.uk/blob/master/acoustic_cdr_3) (2004)
+* [Seclusion](https://github.com/godds/sotu.co.uk/blob/master/seclusion) (2004)
+* [Acoustic CDR 4](https://github.com/godds/sotu.co.uk/blob/master/acoustic_cdr_4) (2004)
+* [In The Fishtank, Vol.14: Isis + Aereogramme](https://github.com/godds/sotu.co.uk/blob/master/in_the_fishtank_vol.14) (2006)
+* [My Heart Has A Wish You Would Not Go](https://github.com/godds/sotu.co.uk/blob/master/my_heart_has_a_wish_you_would_not_go) (2007)
