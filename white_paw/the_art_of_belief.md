@@ -7,7 +7,7 @@ And laughter while I try
 I am weak at the thought of you  
 I am weak at the thought of you
 
-I was hoping we'd hold up the part  
+I was hoping we'd hold up the bar 
 Take a picture and keep it  
 To remember I loved you that night
 
