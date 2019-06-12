@@ -1,7 +1,7 @@
 ### Exits
 
 It's not my choice to be here  
-There's been a little mood  
+In this bitter little room
 I've never found an exit  
 and I doubt I'll find one soon  
 I cursed you all for leaving  
@@ -28,26 +28,26 @@ A way out
 Some exits  
 A lifeline
 
-There's no way out  
-No way out  
-Might not be needing this oxygen
+With no way out  
+And no way in 
+I might not be needing this oxygen
 
-There's no way out  
-No way out  
-Might not be needing this oxygen
+With no way out  
+And no way in 
+I might not be needing this oxygen
 
-There's no way out  
-No way out  
-Might not be needing this oxygen
+With no way out  
+And no way in 
+I might not be needing this oxygen
 
-There's no way out  
-No way out  
-Might not be needing this oxygen
+With no way out  
+And no way in 
+I might not be needing this oxygen
 
-There's no way out  
-No way out  
-Might not be needing this oxygen
+With no way out  
+And no way in 
+I might not be needing this oxygen
  
-There's no way out  
-No way out  
-Might not be needing this oxygen
+With no way out  
+And no way in 
+I might not be needing this oxygen
