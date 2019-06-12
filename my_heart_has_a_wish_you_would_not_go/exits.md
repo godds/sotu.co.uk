@@ -29,25 +29,25 @@ Some exits
 A lifeline
 
 With no way out  
-And no way in 
+And no way in  
 I might not be needing this oxygen
 
 With no way out  
-And no way in 
+And no way in  
 I might not be needing this oxygen
 
 With no way out  
-And no way in 
+And no way in  
 I might not be needing this oxygen
 
 With no way out  
-And no way in 
+And no way in  
 I might not be needing this oxygen
 
 With no way out  
-And no way in 
+And no way in  
 I might not be needing this oxygen
  
 With no way out  
-And no way in 
+And no way in  
 I might not be needing this oxygen
